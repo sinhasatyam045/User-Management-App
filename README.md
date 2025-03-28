@@ -106,7 +106,7 @@ Contributions are welcome!
 ## 🚀 **Author**
 👨‍💻 **Satyam Sinha**  
 📧 **Email:** [sinha.satyam045@gmail.com](mailto:sinha.satyam045@gmail.com)  
-🔗 **LinkedIn:** [Satyam Sinha](https://www.linkedin.com/in/satyam-sinha) 
+🔗 **LinkedIn:** [Satyam](https://www.linkedin.com/in/satyam-sinha-51b748226/) 
 
 ---
 
